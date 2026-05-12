@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ftx trading bot instant Algorithm | perpetual-trading & position-sizing, the #1 ftx trading bot. Includes perpetual-trading and position-sizing for a
 
 
 
